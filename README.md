@@ -2,6 +2,18 @@
 
 **注册了的记得底部截图扫一扫关注微信公众号啊，刚起的号**
 
+**开通一个体验套餐（使用的请勿随意更改密码）**
+
+![image](https://github.com/user-attachments/assets/b939bfe9-a312-4f7d-8165-c50f3b4a7a87)
+
+登陆地址：https://neko1.o888.space/#/login
+
+邮箱：1822247278@qq.com
+
+密码：tytc123456
+
+**登陆后直接从第四步开始就可以**
+
 1、[注册](https://neko1.o888.space/#/register?code=cp7DZB7x),点击“注册”后直接注册；
 
 2、注册后使用你注册的账号进行登录；
