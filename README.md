@@ -33,7 +33,7 @@
 
 6、以上步骤均正确的话就可以开始科学上网了。
 
-更多工具请关注公众号：
+**更多工具请关注公众号，同时，基于公众号文章得ai助手同步上线：**
 
 
 ![qrcode_for_gh_453be2421e98_344](https://github.com/user-attachments/assets/08b961e9-2fb7-412c-bcf5-ab8433861ed0)
