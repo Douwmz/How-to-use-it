@@ -2,7 +2,7 @@
 
 
 
-1、[注册](https://neko1.o888.space/#/register?code=cp7DZB7x),点击“注册”后直接注册；
+1、[注册](https://neko1.o888.space/#/register?code=FhNkM7Cn),点击“注册”后直接注册；
 
 2、注册后使用你注册的账号进行登录；
 
